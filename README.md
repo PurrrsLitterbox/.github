@@ -1,1 +1,1 @@
-🛠️ What are you searching for?
+🛠️ What are you looking for?
