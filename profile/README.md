@@ -1,1 +1,1 @@
-🛠️ What are you looking for?
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Boldonse&size=30&duration=1000&pause=1000&color=F70000&center=true&lines=Why+are+you+here%3F;What+are+you+looking+for%3F)](https://git.io/typing-svg)
